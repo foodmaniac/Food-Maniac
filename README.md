@@ -1,2 +1,2 @@
 # Food-Maniac
-Food Maniac (www.foodmaniacpro.com) is all about getting quality coupons and discounts for everyone.
+Food Maniac (http://www.foodmaniacpro.com/single-post/2016/10/17/Postmates-Promo-Code) is all about getting quality postmates promo code and discounts for everyone.
